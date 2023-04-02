@@ -1,1 +1,0 @@
-# skolni_web
